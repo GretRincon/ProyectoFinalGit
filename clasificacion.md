@@ -101,3 +101,6 @@ Aquí se combinan los dos elementos: el jugador debe de seguir el ritmo si quier
 ﾟ。ⁱ ʷⁱˡˡ ᵃˡʷᵃʸˢ ˡᵒᵛᵉ ʸᵒᵘ  
 　ﾟ･｡･ﾟ
 ```
+
+
+Hola! Soy **Gretchen** Sabes, nunca habia escuchado ese termino de juegos de ritmo, y no los he jugado. Musicales si, Guitar hero mas que nada, pero con tu increible presentación suenan muy interesantes para jugar!
